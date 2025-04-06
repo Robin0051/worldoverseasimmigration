@@ -1,6 +1,6 @@
 # worldoverseasimmigration
-If you are immigrating to Canada the n you need help of [Immigration Consultant in Delhi](https://www.worldoverseasimmigration.com/).
-You also have a list known as [Canada Occupation list](https://www.worldoverseasimmigration.com/canada-occupation-demand-list/) which have all information related to Canada Skilled Immigration.
+If you are immigrating to Canada the n you need help of Immigration Consultant in Delhi.
+You also have a list known as Canada Occupation list which have all information related to Canada Skilled Immigration.
 If you have desire to immigrate to Canada as a Federal Skilled Worker, you should have experience within 10 years in an occupation listed below. The occupation  must correspond to the Canadian occupational defined to your listed migration occupation. Please keep in mind that only occupations that relates to Skill Type 0, Skill Level A, and Skill Level B are listed, as these are the highly demanded occupation classifications required for entry under the Federal Skilled Worker Program.
 Correct documentation work experience references are essential to know that you are awarded experience points in your listed occupation.
 You may be permitted to immigrate to Canada under a Federal Skilled Worker Visa if you have least 1 year of experience in one or more of the defined occupations:
@@ -37,4 +37,6 @@ Express Entry Draw: 925 candidates are Invited​
 Canada invited 1,046 Express Entry candidates
 Canada eyes on achieving 4,02,000 immigration goals
 
-[Myntra Seller Onboarding](https://www.studio1emporio.com/myntra-seller-onboarding-services-in-delhi-noida-and-gurgaon/)
+[Myntra Seller Onboarding](https://www.studio1emporio.com/myntra-seller-onboarding-agency-service-in-delhi-noida-and-gurgaon/)
+[Outdoor Photography Service in Delhi](https://www.studio1emporio.com/outdoor-photography-shoot-service-in-delhi-noida-gurgaon/)
+
